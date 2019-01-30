@@ -1,0 +1,1 @@
+# prolomitsucho.pirati.cz
